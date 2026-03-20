@@ -1,4 +1,4 @@
-![huilusha-pornusha](![gif](https://media.giphy.com/media/8GiREm7aqMwN2/giphy.gif).)
+!(https://media.giphy.com/media/8GiREm7aqMwN2/giphy.gif)
          
 
        
