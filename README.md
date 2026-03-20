@@ -1,4 +1,4 @@
-![huilusha-pornusha](https://giphy.com/gifs/lick-blood-8GiREm7aqMwN2)
+![huilusha-pornusha](![gif](https://media.giphy.com/media/8GiREm7aqMwN2/giphy.gif).)
          
 
        
